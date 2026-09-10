@@ -9,4 +9,4 @@ Hopefully after Habit Tracker I can properly succeed on my everyday goals,
 keep my health issues under control and time manage my life while documenting it.
 
 
-δρυγηξκλ΄κξηφγ
+It's still in progress and I'm trying to succeed on it
