@@ -10,3 +10,5 @@ keep my health issues under control and time manage my life while documenting it
 
 
 It's still in progress and I'm trying to succeed on it
+
+The bigger purpose is to adjust and balance my chaotic life into a fitting environment for my own good 
