@@ -13,4 +13,4 @@ It's still in progress and I'm trying to succeed on it
 
 The bigger purpose is to adjust and balance my chaotic life into a fitting environment for my own good 
 
-The first purpose that it serves is to make it more helpful
+The first purpose that it serves is to make it more helpful on my everyday life
