@@ -16,4 +16,5 @@ The bigger purpose is to adjust and balance my chaotic life into a fitting envir
 The first purpose that it serves is to make it more helpful on my everyday life
 
 It's still raw and I am a bit shame to admit that I haven't started it yet.
-I promise I will work on it from now on
+
+I promise I will work on it from now on!
